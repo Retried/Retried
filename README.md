@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+- Proficient draisine driver 🔥
+- Always on the night shift 🦉
+- Hire me pls 🥺
+
 <!--
 **Retried/Retried** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
